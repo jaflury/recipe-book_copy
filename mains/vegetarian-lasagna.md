@@ -35,6 +35,12 @@
 3. **Mix Cheeses:**
    - In a bowl, mix together the ricotta cheese, egg, half of the grated Parmesan cheese, and a pinch of salt and pepper. Set aside.
 
+3a. **Bechamel sauce**
+   - 50g of butter, melt in pot
+   - 2 spoons of flour, put in and let melt into each other
+   - add 500ml of milk
+   - stirr stirr stirr at high temp until thickens
+
 4. **Assemble Lasagna:**
    - Spread a thin layer of marinara sauce over the bottom of the baking dish.
    - Place a layer of lasagna noodles over the sauce.
