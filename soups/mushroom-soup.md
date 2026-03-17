@@ -4,6 +4,7 @@
 ## Ingredients
 
 - **1 lb** (450g) champignons, cleaned and sliced
+- **1 lb** (450g) Eierschwamm, cleaned and sliced
 - **2 tablespoons** olive oil or unsalted butter
 - **1** medium onion, diced
 - **2** garlic cloves, minced
