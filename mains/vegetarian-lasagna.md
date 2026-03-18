@@ -40,6 +40,7 @@
    - 2 spoons of flour, put in and let melt into each other
    - add 500ml of milk
    - stirr stirr stirr at high temp until thickens
+   - add spice (pepper, muskat)
 
 4. **Assemble Lasagna:**
    - Spread a thin layer of marinara sauce over the bottom of the baking dish.
